@@ -1,6 +1,6 @@
 # Entry 1
 
-Fermentation of Foods
+Fermentation of Foods 
 Do you understand... 
 the benefits of eating fermented foods?
 the science behind it?
